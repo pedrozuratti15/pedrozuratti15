@@ -1,7 +1,7 @@
 ## Olá!! 🐱‍👤
 
 
-- 🔭 Estou atualmente estudando Delphi
+- 🔭 Sou um futuro profissional da TIC, focado em programação back-end!
 - 📫 E-mail: pedrozuratti@gmail.com
 - 😄 Pronouns: Ele/Dele
 
