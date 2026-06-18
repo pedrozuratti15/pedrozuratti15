@@ -1,4 +1,4 @@
-## Olá!! 🐱‍👤
+## Olá!! :)
 
 
 - 🔭 Sou um futuro profissional da TIC, focado em programação back-end!
